@@ -28,3 +28,15 @@ They are NOT recommended for fires involving ordinary combustibles like wood or 
 <h3>Conclusion: Safety You Can Rely On</h3>
 In environments where electrical fire risks are high, the MANXPOWER <a href="https://manximpex.com/product/co2-fire-extingusisher/" title="CO2 Fire Extinguisher" alt"CO2 Fire Extinguisher" <a>CO2 Fire Extinguisher</a> delivers unmatched protection, efficiency, and peace of mind. Choosing MANXPOWER means investing in a safety solution backed by innovation, quality, and trust. Equip your premises with the best – because fire safety begins with the right equipment.<br>
 <b>Protect smart. Choose MANXPOWER.</b>
+<h3>Get in touch with us:</h3>
+<b>Visit: https://manximpex.com/product/co2-fire-extingusisher/ </b><br>
+<b>E-mail: info@manximpex.com </b><br>
+<b>Contact Number: +91- 7065192900, +91- 7428115550</b><br>
+<b>Address: 3963/9, Ground Floor, City Market, Ajmeri Gate, Delhi 110006 </b><br>
+<h3>Follow us on:</h3>
+<b>Instagram: https://www.instagram.com/manximpex/ </b><br>
+<b>Facebook: https://www.facebook.com/manximpex/ </b><br>
+<b>LinkedIn: https://in.linkedin.com/company/manx-impex </b><br>
+<b>Youtube: https://www.youtube.com/c/ManxImpex  </b><br>
+<h3>Read our blog:</h3>
+<b>How to Properly Maintain and Inspect Fire Extinguisher: https://manximpex.com/maintain-inspect-fire-extinguishers/ </b>
